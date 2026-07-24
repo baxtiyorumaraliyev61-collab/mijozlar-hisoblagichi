@@ -1,1 +1,0 @@
-# mijozlar-hisoblagichi
